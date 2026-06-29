@@ -1,2 +1,0 @@
-# Brata-
-Perjalanan
